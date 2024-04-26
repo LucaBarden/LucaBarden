@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭SE @ Provinzial Rheinland
+🔭SE Trainee @ Provinzial Rheinland
 
 
 ## 🌐 Socials:
