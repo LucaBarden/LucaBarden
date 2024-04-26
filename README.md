@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭Currently Studying Computer Science @ HHU
+🔭SE @ Provinzial Rheinland
 
 
 ## 🌐 Socials:
